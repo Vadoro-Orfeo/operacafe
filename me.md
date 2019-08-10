@@ -8,6 +8,10 @@ permalink: /me/
 
 언제부턴가 오페라의 매력에 빠져버렸습니다. 클래식 음악 연주회와 오페라 공연을 보러 가는 것이 삶의 낙입니다. 
 
+[YouTube Channel](http://bit.ly/2KDCB4N)
+
+[Facebook Page: Harmonia](https://www.facebook.com/vadoropupille)
+
 
 
 ## Digital Arts and Humanities
